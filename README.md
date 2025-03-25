@@ -1,5 +1,4 @@
-👋 Hi, I am Ego Joseph
-🚀 AI, Cybersecurity & Digital Innovation Expert | Tech Leader | Speaker | Author
+AI, Cybersecurity & Digital Innovation Expert | Tech Leader | Speaker | Author
 
 🔹 About Me
 
